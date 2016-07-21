@@ -1,4 +1,4 @@
-Les fondements du jeejisme : 
+Les dix commandements du jeejisme : 
 
 - Subtilement, tu trolleras
 - Le second degré, tu apprendras
@@ -9,3 +9,4 @@ Les fondements du jeejisme :
 - Les conneries, tu éviteras
 - Fisha tu ne devras pas
 - Organiser des trucs cools tu pourras
+- Padamalgam, ta devise sera
